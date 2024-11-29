@@ -1,1 +1,1 @@
-# CSE-438-Research-Paper
+# CSE-438 Research Paper Submission and Acceptance Details
